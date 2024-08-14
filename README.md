@@ -1,1 +1,1 @@
-Ini adalah tugas pekrnelana diri pekan ilkomerz 60
+Ini adalah tugas perkenalan diri pekan ilkomerz 60
